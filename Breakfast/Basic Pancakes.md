@@ -6,7 +6,7 @@
 - Baking powder (3 1/2 tsp)
 - Salt (1/2 teaspoon)
 - Sugar (1 tbsp)
-- Milk (1 1/4 cup)
+- Milk (1 1/3 cup)
 - Egg (1)
 - Butter, melted (3 tbsp)
 
