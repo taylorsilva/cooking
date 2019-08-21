@@ -13,3 +13,5 @@
 
 1. Mix all ingredients together in a bowl
 2. Add to whatever meat you're cooking
+
+Source: https://www.jocooks.com/recipes/sweet-and-sour-chicken/
