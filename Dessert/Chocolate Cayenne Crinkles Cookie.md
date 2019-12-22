@@ -6,15 +6,20 @@ Total Time: 45 mins
 
 ### INGREDIENTS
 
-- 3 cups powdered sugar **($0.54)**
-- 3/4 cup unsweetened cocoa powder **($0.48)**
-- 1 Tbsp cornstarch **($0.04)**
-- 1/4 tsp salt **($0.02)**
-- 1/2 tsp cayenne pepper **($0.05)**
-- 2 large egg whites **($0.42)**
-- 1 large whole egg **($0.21)**
-- 1 tsp vanilla extract **($0.28)**
-- 1 cup chocolate chips **($0.91)**
+- 3 cups powdered sugar
+- 3/4 cup unsweetened cocoa powder
+- 1 Tbsp cornstarch
+- 1/4 tsp salt
+- 2 large egg whites (1/4 cup of egg whites)
+- 1 large whole egg - CRITICAL that you buy **LARGE** eggs, otherwise cookies will turn into pancakes. Throws off the wet/dry ratio of the recipe. Flat = too wet
+- 1 tsp vanilla extract OR peppermint extract
+- 1 cup chocolate chips
+
+To change the flavour of the cookies add:
+
+- 1/2 tsp cayenne pepper - this is what the author originally recommends
+- 1/2 tsp cinnamon -  drop the cayenne to 1/4 tsp
+- 1/2 tsp espresso powder
 
 ### INSTRUCTIONS
 
