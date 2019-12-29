@@ -1,5 +1,7 @@
 # Sesame Chicken
 
+Source: https://www.budgetbytes.com/easy-sesame-chicken/
+
 ### Ingredients
 
 #### Chicken
