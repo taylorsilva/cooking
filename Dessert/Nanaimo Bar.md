@@ -1,7 +1,5 @@
 ## Nanaimo Bar Recipe
 
-![Image of Nanaimo Bars](Nanaimo-Bars.jpg)
-
 ### Bottom Layer
 
 - ½ cup unsalted butter (European style cultured)

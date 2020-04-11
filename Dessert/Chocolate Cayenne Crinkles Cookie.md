@@ -32,36 +32,4 @@ To change the flavour of the cookies add:
 
 To make chocolate peppermint cookies, add one teaspoon peppermint extract to the batter and top with crushed candy canes.
 
-## ![These flourless Chocolate Cayenne Crinkles have a delicate, crispy exterior, rich chewy interior, and a spicy kick of cayenne. BudgetBytes.com](Chocolate-Cayenne-Crinkles-V1.jpg)
-
-## 
-
-##  STEP BY STEP PHOTOS
-
-![Dry Ingredients](Dry-Ingredients-20190526190056869.jpg)
-
-Preheat the oven to 350 degrees. In a LARGE bowl, combine 3 cups powdered sugar, 3/4 cups unsweetened cocoa powder, 1 Tbsp cornstarch, 1/4 tsp salt, and 1/2 tsp cayenne pepper. If you’re scared of the spiciness, start with 1/4 tsp cayenne. Make sure the dry ingredients are very well mixed. Hint: use a bowl with steep sides, or you’ll get powdered sugar everywhere.
-
-![Wet Ingredients](Wet-Ingredients-20190526190056868.jpg)
-
-Add two large egg whites, one whole egg, and 1 tsp vanilla extract. Begin to carefully stir these into the powdered sugar mixture. You can use a whisk at first, but it will soon get too thick and you’ll need to switch to a spoon.
-
-![Cookie Batter](Cookie-Batter.jpg)
-
-As you stir the eggs and vanilla into the powdered sugar it will seem like there’s not enough moisture to make it work (I went back and checked the recipe THREE times to make sure…), but just keep stirring and eventually all of the powdered sugar will melt into it. The batter becomes very thick and stiff.
-
-![Chocolate Chips](Chocolate-Chips.jpg)
-
-Stir in one cup of chocolate chips. I happened to have some leftover mini-chocolate chips, so I used those.
-
-![Cookie Sheet](Cookie-Sheet.jpg)
-
-Cover two baking sheets with parchment paper. Drop the batter onto the sheets in heaping tablespoons, about ten per sheet. Leave a couple inches between each cookie for them to spread while baking.
-
-![Baked Chocolate Crinkles](Baked-Chocolate-Cookies.jpg)
-
-Bake one sheet at a time for 14 minutes, or until the cookies are puffed up and cracked along the top (they deflate upon cooling). Let the cookies cool completely before removing them from the parchment.
-
-![Chocolate Cayenne Crinkles - BudgetBytes.com](Chocolate-Cayenne-Crinkles-open.jpg)
-
 Enjoy the warm chocolatey goodness and the sassy kick of cayenne!
