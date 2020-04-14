@@ -4,7 +4,7 @@
 
 * 8 boneless, skinless chicken thighs
 * 1 tablespoon sesame oil
-* 1/4 soya sauce( low sodium if you have)
+* 1/4 cup soya sauce (low sodium if you have)
 * 2 cloves garlic, minced
 * 1/2 tablespoon  powder ginger
 
