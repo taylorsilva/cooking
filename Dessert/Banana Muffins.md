@@ -3,7 +3,7 @@
 ### Ingredients
 
 - Flour (2 cups)
-- Baking soda (1 tsp)
+- Baking soda (1 tsp) - If you don't have baking soda add 3 extra tsp of baking powder
 - Baking powder (1 tsp)
 - Sugar (3/4 cup)
 - 3 bananas, mashed
