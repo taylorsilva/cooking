@@ -3,7 +3,7 @@
 ### Ingredients
 
 * Unsalted Butter (1/2 cup)
-* Eggs (2)
+* Eggs (1)
 * Vanilla Extract (1 tsp)
 * Vegetable Oil (1/4 cup)
 * Sugar (1 cup)
