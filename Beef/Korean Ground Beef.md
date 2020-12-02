@@ -13,9 +13,9 @@
 
 ### Instructions
 
-1. In a wide pan over medium heat, heat vegetable oil. Add garlic and ginger and cook until aromatic. 
+1. In a wide pan over medium heat, heat vegetable oil. Add garlic and ginger and cook until aromatic.
 2. Add ground beef and cook, breaking apart with the back of a spoon, for about 3 to 5 minutes or until lightly browned. Drain excess fat.
 3. In a bowl, combine soy sauce, sugar, sesame oil, and red pepper flakes. Stir until sugar is dissolved. Add to the pan.
-4. Continue to simmer until beef is cooked through. 
-5. Add green onions and cook, stirring to distribute, for about 1 minute. 
+4. Continue to simmer until beef is cooked through.
+5. Add green onions and cook, stirring to distribute, for about 1 minute.
 6. Serve over steamed rice and garnish with green onions and toasted sesame seeds. Serve hot.
