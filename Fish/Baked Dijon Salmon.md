@@ -8,7 +8,7 @@
 - 4 fillets salmon
 - salt and pepper to taste
 - 1 lemon, for garnish
-- If you are only making 2 pieces of salmon reduce Dijon to 1.5  tablespoon, honey to 1tablespoon, 4 tablespoon of breadcrumbs ,  everything else is your own taste preference 
+- If you are only making 2 pieces of salmon reduce Dijon to 1.5 tablespoon, honey to 1 tablespoon, 4 tablespoon of breadcrumbs, everything else is your own taste preference 
 
  **Directions** 
 
