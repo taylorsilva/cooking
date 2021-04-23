@@ -2,7 +2,7 @@
 
 ### Ingredients
 
-- 3/4 cup sugar
+- sugar (1/2 cup)
 - Ketchup (4tbsp)
 - Vinegar (1/2 cup)
 - Soy sauce (1 tbsp)
