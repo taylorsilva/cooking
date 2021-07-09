@@ -1,5 +1,7 @@
 # Brandy Alexander
 
+Source: https://kottke.org/21/07/brandy-alexander
+
 ## Ingredients
 
 * 1 1/2 oz cognac (1oz is also fine)
