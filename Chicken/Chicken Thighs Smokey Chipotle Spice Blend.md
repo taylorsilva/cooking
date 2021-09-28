@@ -1,17 +1,17 @@
-# Dry Rub Chicken Thighs
+# Smokey Chipotle Spice Blend
 
-### Ingredients
+## Ingreidents
 
-- cooking spray
-- 10 bone-in chicken thighs with skin
-- 1 tablespoon garlic salt
-- 1 tablespoon onion salt
-- 1 tablespoon dried oregano
-- 1 tablespoon ground thyme
-- 1 1/2 tablespoon paprika
-- 1/2 tablespoon ground black pepper
+- Cumin (1 tsp)
+- Chili powder (1 tsp)
+- Garlic powder (1 tsp)
+- Onion powder (1 tsp)
+- Chipotle Chili powder (1 tsp)
+- Smoked paprika (1 tsp)
+- Salt (1/2 tsp)
+- Black pepper (1/2 tsp)
 
-### Directions
+## Directions
 
 1. Preheat oven to 425F
 1. Mix together marinade in a small bowl and pour ver chicken in a bowl or ziplock bag. Marinate for 20mins or longer
