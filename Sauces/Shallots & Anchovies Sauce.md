@@ -17,3 +17,5 @@
 ### With Pasta
 
 Add cooked pasta to dutch oven/pot that contains sauce. Add 1 cup of pasta water as well. Stir on medium-high for 3-5 or until sauce has reduced but not sticky.
+
+When serving add parsley and finely chopped garlic. Season with extra pepper
