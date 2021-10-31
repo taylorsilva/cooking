@@ -1,6 +1,7 @@
 # Shallot & Anchoives Sauce
 
 ## Ingreidents
+* Olive oil (1/4 cup)
 * Large shallots, thinly sliced (6)
 * Garlic cloves, chopped (5)
 * Red pepper flakes (1 tsp)
