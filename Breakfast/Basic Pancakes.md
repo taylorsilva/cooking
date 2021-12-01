@@ -3,7 +3,7 @@
 ### Ingredients
 
 - Flour (1 & 1/2 cups)
-- Baking powder (3 1/2 tsp)
+- Baking powder (2 tsp)
 - Salt (1/2 teaspoon)
 - Sugar (1 tbsp)
 - Milk (1 1/2 cup)
