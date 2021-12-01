@@ -9,6 +9,7 @@
 - Milk (1 1/2 cup)
 - Egg (1)
 - Butter, melted (3 tbsp)
+- A few drops of vanilla extract
 
 ### Directions
 
