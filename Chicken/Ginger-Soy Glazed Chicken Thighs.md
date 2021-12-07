@@ -7,8 +7,7 @@
 - Soy Sauce (3 tbsp)
 - Garlic (2 cloves)
 - Ginger powder (1 tbsp)
-- Black pepper for taste
-- Cooking oil (1 tbsp)
+- Black pepper (1/4 tsp)
 
 ### Directions
 
