@@ -5,6 +5,7 @@
 * Lean ground beef (1lb)
 * Medium onion, diced
 * Italian Seasoning (1 tbsp)
+* Cinnamon (1 tsp)
 * Minced garlic (1 tbsp)
 * Salt (1 tsp)
 * Black pepper (1/4 tsp)
@@ -15,7 +16,7 @@
 ## Directions
 
 1. In a large saucepan, stir and cook ground beef and onion over medium heat until browned and onions have softened. Drain any juices released.
-1. Add the Italian seasoning, garlic, salt and pepper and cook 1 minute.
+1. Add the Italian seasoning, cinnamon, garlic, salt and pepper and cook 1 minute.
 1. Add the pasta sauce and cook, stirring occasionally, over medium heat, for 5 minutes. Set aside.
 1. Meanwhile, bring a large pot of salted water to a rolling boil over high heat. Add rigatoni, reduce heat to medium-high, and cook just until al dente (it will continue to cook slightly in the oven).
 1. Reserve 1/2 cup pasta water and drain pasta. Stir reserved pasta water into meat sauce.
