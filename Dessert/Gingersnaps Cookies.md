@@ -3,7 +3,7 @@
 ## Ingredients
 * All-purpose flour (2 cups, sifted)
 * Ground ginger (1 tbsp)
-* Baking soda (2 tsp)
+* Baking soda (2 tsp) OR Baking powder (6 tsp)
 * Ground cinnamon (1 tsp)
 * Salt (1/2 tsp)
 * Shortening (3/4 cup)
