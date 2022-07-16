@@ -2,22 +2,22 @@
 
 ### Ingredients
 
-- Flour (1 & 1/2 cups)
-- Baking powder (2 tsp)
+- Flour (1 cup)
+- Baking powder (1.5 tsp)
 - Salt (1/2 teaspoon)
-- Sugar (1 tbsp)
-- Milk (1 1/2 cup)
+- Sugar (2 tbsp)
+- Milk (3/4 cup + 2 tbsp) - slightly warm to help butter stay wet
 - Egg (1)
-- Butter, melted (3 tbsp)
-- A few drops of vanilla extract
+- Butter, melted (2 tbsp)
+- Vanilla extract (1/2 tsp)
 
 ### Directions
 
-1. In large bowl whisk together: flour, baking powder, salt, sugar
-2. Make a well in the center of the dry ingredients and pour in milk, eggs, and melted butter
-   Mix until smooth.
-3. Cook on oiled griddle or frying pan over medium high heat
+1. In large bowl whisk together: flour, baking powder, salt
+1. In a second bowl mix together remaining ingredients: milk, eggs, butter, vanilla extract, sugar
+1. Combine wet and dry ingredients. Mixture should be thick but pourable and a bit lumpy. Let batter sit for 15mins
+3. Cook on oiled griddle or frying pan over medium high heat. Pour 1/4 cup batter into pan at a time
 
 
 
-Source: https://www.allrecipes.com/recipe/21014/good-old-fashioned-pancakes/
+Source: https://www.budgetbytes.com/homemade-pancakes/
