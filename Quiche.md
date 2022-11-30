@@ -14,6 +14,15 @@ Source: https://basicswithbabish.co/basicsepisodes/quiche
 * Gruyere cheese (Shredded, 3oz)
 * Various veggies or meats
 
+### Lactose Free Filling
+* 6 eggs
+* Unsweetened Almond Milk (1/2 cup)
+* Kosher salt (1 1/2 tsp)
+* White pepper (1 tsp)
+* Garlic (1/4 tsp)
+* Thyme (1 tsp)
+* Various veggies or meats
+
 ## Directions
 
 1. Pre-cook your veggies and meats (satuee, fry, bake, etc.)
