@@ -2,7 +2,7 @@
 
 Simple quiche using pre-bought pie crust (Short-crust tart shell).
 
-Source: https://basicswithbabish.co/basicsepisodes/quiche
+Source: https://basicswithbabish.co/basicsepisodes/quiche and https://www.simplyquinoa.com/leek-mushroom-dairy-free-quiche/
 
 ## Ingredients
 
