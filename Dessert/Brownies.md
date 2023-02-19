@@ -2,7 +2,7 @@
 
 ### Ingredients
 
-* Butter (12 tbsp)
+* Butter (12 tbsp | 3/4 Cup | 1.5 sticks of butter)
 * Cooking oil (2 tbsp)
 * Unsweetened cocoa powder (3/4 cup)
 * Granulatd sugar (1 1/4 cup)
