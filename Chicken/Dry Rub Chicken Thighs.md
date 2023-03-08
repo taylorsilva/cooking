@@ -4,7 +4,7 @@
 
 - cooking spray
 - 10 bone-in chicken thighs with skin
-- 1 tablespoon garlic salt
+- 1 tablespoon garlic salt (1/3 garlic powder, 2/3 salt)
 - 1 tablespoon onion salt
 - 1 tablespoon dried oregano
 - 1 tablespoon ground thyme
