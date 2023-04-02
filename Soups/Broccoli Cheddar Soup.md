@@ -25,3 +25,5 @@
    reduce heat to medium-low and simmer for 15mins or until broccoli and
    carrots are cooked through
 3. Stir in cream and cheddar cheese. Simmer for another minute. Done!
+
+Source: https://gimmedelicious.com/broccoli-cheddar-soup/
