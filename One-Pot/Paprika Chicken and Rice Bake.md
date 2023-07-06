@@ -10,7 +10,7 @@
 * Garlic, minced (1 tbsp)
 * Red onion, diced (1/2 cup)
 * Long grain rice (1 cup / 200g)
-* Chicken broth (1 1/1 cups OR 360ml)
+* Chicken broth (1 1/2 cups OR 360ml)
 
 ## Directions
 
