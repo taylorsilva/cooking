@@ -1,4 +1,4 @@
-## Roasted Cauliflower with Curry
+## Roasted Cauliflower with Yellow Curry
 
 #### Ingredients
 

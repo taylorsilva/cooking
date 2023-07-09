@@ -4,15 +4,15 @@ Source: https://www.budgetbytes.com/one-pot-beef-mushroom-stroganoff/
 
 ### Ingredients
 
-- 2 Tbsp butter 
+- Butter (2 Tbsp)
 - 2 cloves garlic
 - 1/2 lb ground beef
 - 8 oz fresh button mushrooms
 - Freshly cracked pepper
-- 2 Tbsp all-purpose flour
-- 2 cups beef broth
+- all-purpose flour (2 tbsp)
+- beef broth (2 cups)
 - 8 oz wide egg noodles
-- 1/3 cup sour cream
+- sour cream (1/3 cup)
 
 ### Directions
 
