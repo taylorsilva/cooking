@@ -1,5 +1,7 @@
 # Muhammara Chickpea Skillet
 
+Source: https://dishingouthealth.com/muhammara-chickpea-skillet/#recipe
+
 ## Ingredients
 
 - 1 (12-oz.) jar roasted red peppers, drained
