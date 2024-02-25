@@ -22,6 +22,7 @@ Serving ingredients:
 - Fresh parsley
 - Tomatos
 - Red onion, sliced
+- Tzatiki sauce
 
 ## Direction
 
